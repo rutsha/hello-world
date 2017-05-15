@@ -1,4 +1,4 @@
 # hello-world
 intro 
-hapoel <3 
-hi bye 
+Super fresh, just starting, loving Hapoel and pizza.  
+hope no one will see it. bye 
